@@ -8,8 +8,8 @@ whether they play \#1 Villanova or \#16 Mount St. Mary's. One can think of this 
 implicitly giving a boost to underdogs, and increasing the upset potential.
 
 
-:sparkles: :basketball:
+:sparkles: :basketball: :sparkles:
 
-Have fun!
+      Have fun!
 
-:sparkles: :basketball:
+:sparkles: :basketball: :sparkles:
